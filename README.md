@@ -1,16 +1,33 @@
-### Hi there 👋
+### 👋 Greetings to alll! 👋
 
-<!--
-**22dhriti01/22dhriti01** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+🔭Ciao, Dhriti this side! I am an undergrad pursuing my B. Tech Degree in Computer Engineering from Ajeenkya DY Patil University, Pune.
+
+⚡Growing and Learning every day!!
+
+😄Ready to work in a dynamic environment that offers opportunities to utilize my skills for the upliftment and betterment. 
+
+📫Passionate about implementing and launching new ideas and projects.
+
+
+
+
+         
+        🌱 Proficient in : Effective Writing | Microsoft Tools | HTML | CSS | C | C++ | MongoDB | Android Programming | Data Structures
+        
+        
+        
+
+👯  Up to grab Internship Opportunities.
+
+
+
+We can do great things together. Join with me via:
+
+💬 22dhitu@gmail.com
+
+💬 www.linkedin.com/in/dhriti22
+
+💬 www.instagram.com/_dhriitii_
