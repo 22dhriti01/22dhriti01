@@ -24,7 +24,7 @@
 
 
 
-We can do great things together. Join with me via:
+👏We can do great things together. Join with me via:
 
 💬 22dhitu@gmail.com
 
